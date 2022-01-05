@@ -1,14 +1,8 @@
 # creck
-Creck fb 
 
-sc crack fb ini gk ada warna 
-jangan lihat dari luarnya 
-lihatlah dalam nya jga 
-ibarat kita memakan buah durian!!!
-di luar keras dan berduri
-tetapi didalam lembut dan wangi:v
+maaf klo masih banyak kesalahan
 
-kalo masih ada banyak bug laporkan aja 
+MAKLUM PEMULA
 
 BAHAN BAHAN 
 ===========
